@@ -1,0 +1,30 @@
+#The Great Kodai!!
+
+## Planning The Trip!!!
+
+I don't want to be alone, i don't want to be frustrated.. unfortunately all I had was loneliness and frustration.
+Suddenly my phone vibrated, its the starting of my ringtone but even vibrations will feel like a roar in the Loneliness. As usual that was Ananthu, he told me that they have a plan, a trip to Kodaikkanal. Kodai, a place where we can forget all our emotions changes into actions ;) So it took less than a minute to say "I'm In". Still i asked some clarifications, "how and with whom we're going???", then I realized that the plan maker was Ijo, Akhil. Ananthu and Akhil was with me in my previous trips to Kodai so all my doubts and thoughts became positive and concluded, "this will be an awesome trip". Silju and Manu joined us, two good friends who understands and ready to "Go Wild" with Us.
+Now date, we choose a second Saturday so that everyone can come without any pressure and we used our old contacts to rent a car.
+Now we're all set!! Five best trippers :P, Date and the Vehicle. Thus our planning finished and we're waiting.....
+
+##Trip Begins
+8th July,Friday evening we started our journey. Maruti SX4 is taking us to the "Princess of Hill stations". Manu the Driver, he has a big responsibility to take us there safely so he came prepared and did his part perfectly. As usual car was filled with Marys scent and Music. Dimitri Vegas&Like Mike, Rehab and Bahramji began to fill our minds.
+Here comes our first task!!! Pollachi Check-post, this check-post is made only to reduce our budget, Errrrr!!!!! So everyone came back to normal mode and sit quietly like we're going to Palani to visit Lord Muruga. But this time something different happened, check-post was free to cross nobody was there to show stop sign. We stopped to have tea and cigarette, it took only 20mnts. Manu started again so as we, back to Flight mode!! ;) 
+The road to Kodai was quite and we enjoyed the ride. Siljuetan in the front seat with Manu and I,Akhil and Ananthu in the back. Churam starts after Palani. Churam is dangerous also beautiful, Akhil began to play some good musics as we entered the Churam. Once again we stopped, it was a great place.. Only us, peace!!!! After a break we started again, now we are going very slowly because the room was booked for Saturday morning. Finally we reached our destination, the great Kodai!! Princess of Hills... 
+
+##Koadi Exploration
+
+###Day 1
+
+First thing, shelter!!! It was cold out there, not much as previous days but we can't adjust it for two days. So we contacted the hotel where we booked the room, unfortunately we didn't get that room. So we started looking for other rooms. Suddenly Malik bro called, Surprise!!! he came there with his friends and now he is coming to meet us. Then our mind jumped to the great Mushroom!!!!! Malik bro also need mush so we contacted our guy for mush. 
+Here comes the Devil!!! A local guy came to us with Mush, the great Magic Mushrooms. We divided it with Malik bro and he left. Still we don't have room!! We went to Vattakanal, one of the beautiful place in Kodai. There is a hotel, The Kodai Heaven... finally Kodai Heaven became our shelter. There were lots of guys n girls enjoying the beaty of Vattakanal, some of them were smoking some of them were sitting quietly, we whispered each other.. "dude!!! Mushroom". One guy from the hotel lead us to our room. Everyone was tired, first thing is to get fresh and get some food, task completed in 1 hour. 
+Now time to dig Mush in the honey.... :) ;) :) Ananthu, he can't wait anymore.. he started eating the great Mushroom. Me, Siljuvetan, Akhil and Manu followed Ananthu. Now everyone is waiting for HD. Half an hour passed, everyone looked each other, no change no HD. Errrrrr!!!!!! But we didn't loose our hope, we ate the rest. Time passed... nothing happened everyone fall into sleep... End of the Day!!!!
+
+###Day 2
+
+Woke up and get dressed. We decided to check out from the hotel and roam!! When we reached the Kodaikkanal Lake we saw our Mushroom guy... Akhil told him about the Mush, mush guy contacted someone and ask us to follow him. He stopped his Jeep in a narrow road and gave Mushrooms. From the first look itself I was sure that this one will give us what we're looking. Then we bought some cigarettes and three packets of Home made Chocolates.
+Now we should find a perfect place to Get High... City View!!! that was my choice.. City View is a nice place its a hill and we can see the whole city from the top, but the place is very quiet. When we reached city view there were only five or 7 people. Now should find a perfect place to settle down... The road was full of gutters and rocks so we parked our car in a safe  place. Me and siljuetan started searching for the place. Both side of the road is filled with sabar Jelly fields. Finally we found a small way going up to the mountains through the sabar jelly field. Yes!! this is it. We waited there for Ananthu, Akhil and Manu, they came with all the requirements (Mush,Honey,Water,Cigarette...).  We walked to the top, when we get the top everyone said "nice place". It was a very nice place as we expected.. trees, mountain view, city view and some beautiful plants and flowers. We sat down near the mountain edge.. we can see the beautiful valley from there, also fog is coming to us... Sometime fog covers us and sometime it goes.... A perfect atmosphere, a great ambiance, a place to leave all your problems. Now its time for tripping!!!
+
+####Psychedelic Adventure
+
+Everyone took mushrooms and started eating with honey. I was sure that this Mushroom will give what i expected. As I expect, after Twenty minutes my view became HD!! Awesome... Everyone began to find there comfort zone. Anathu was sitting under a tree and I was sitting in front of him, Akhil was sitting on our right just a few yards away. Manu was the one nearer to the Valley, Siljuetan find a perfect place for him. Now everyone is in psychedelic world... everyone is thinking, enjoying the beauty of nature.... After a 
